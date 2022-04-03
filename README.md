@@ -1,1 +1,1 @@
-# Certificados adquiridos ao longo da minha carreira de estudo
+# Certificados adquiridos ao longo dos meus estudos
